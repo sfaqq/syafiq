@@ -1,2 +1,0 @@
-# syafiq
-ok
